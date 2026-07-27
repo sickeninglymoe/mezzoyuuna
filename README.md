@@ -6,7 +6,7 @@
  sanguine  ˙  ִ ⑅      ˖    sp/sx 279
 
 ۫ ׅ my interests are ::
-     pmmm , dol , vns , precure , pripara && , kpop !! 𓈈 ﹒ 𖣠 
+     pmmm , dol , twst , vns , precure , pripara && , kpop !! 𓈈 ﹒ 𖣠 
 
 nagisa momoe hater = DNI
 
